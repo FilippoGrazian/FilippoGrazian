@@ -7,4 +7,5 @@
 - 3D modeling (maya, Zbrush)
 
 ## CONTACTS
-- IG: filippo_grazian_
+- Instagram
+(https://www.instagram.com/filippo_grazian_/)
